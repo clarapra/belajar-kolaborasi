@@ -1,2 +1,2 @@
 # belajar-kolaborasi
-*harii selasa*
+Belajar di Dicoding
