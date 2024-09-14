@@ -1,2 +1,4 @@
 # belajar-kolaborasi
-*harii selasa*
+* Belajar di Dicoding
+* Seru sekali
+* dan sangat asyikk
